@@ -10,3 +10,4 @@
 StaticScuzzi/StaticScuzzi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+select ID slade@gmail.com, bigquery in it effect to elect successful SQL initiate g cloud config.sis at transcendental homeopathy I am CMS at the bien
